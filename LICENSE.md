@@ -1,4 +1,4 @@
-
+roblox be a lucky block Scripts rare is the best roblox be a lucky block Script, featuring one-hit kill and infinite resources. Safe and powerful for
 
 
 ---
